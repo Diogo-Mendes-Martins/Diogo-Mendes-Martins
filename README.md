@@ -12,7 +12,7 @@
 
 Alguns fatos sobre mim: 
   
-             1 - Eu falo fluentemente Inglês e Espanhol (sem contar o Português), e um nível de Francês iniciante.
+             1 - Eu falo fluentemente Inglês e Espanhol, e um nível de Francês iniciante.
              2 - Eu tenho um diploma em Relações Internacionais, e um diploma técnico em Desenvolvimento de Softwares.
           
              
